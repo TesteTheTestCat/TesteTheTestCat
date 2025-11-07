@@ -1,4 +1,2 @@
-gamd defv
-sosomething thing
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-heeeleellpe
+i do things.
+yeah thats it
